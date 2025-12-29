@@ -1,8 +1,8 @@
 ## Hi there 👋 I'm CA Sakshi Jain
 
-**Chartered Accountant (CA) | CPA Candidate | Aspiring FP&A Leader**
+#### Chartered Accountant (CA) | Pursuing CPA | ACCA DipIFRS | Aspiring FP&A Leader
 
-I am a finance professional with **5.5 years of experience** in accounting, audit, and financial reporting. I am currently pivoting into **Financial Planning & Analysis (FP&A)** to leverage my technical foundation in driving business strategy and data-driven decision-making.
+I am a finance professional with **6+ years of experience** in accounting, audit, and financial reporting. I am currently pivoting into **Financial Planning & Analysis (FP&A)** to leverage my technical foundation in driving business strategy and data-driven decision-making.
 
 ### 🔭 I’m currently working on...
 
