@@ -33,7 +33,7 @@ I am a finance professional with **6+ years of experience** in accounting, audit
 
 ### 📫 How to reach me:
 
-* **LinkedIn:** [CA Sakshi Jain](https://www.linkedin.com/in/casakshijain907/)
+* **LinkedIn:** [CA Sakshi Jain](https://www.linkedin.com/in/ca-sakshi-jain1/)
 * **Email:** [casakshi25@gmail.com](mailto:casakshi25@gmail.com)
 * [📄 View My Professional Resume](https://docs.google.com/document/d/1H78Zm5BeEp2yLerY0pSvKsjGMD9fkpGKnKWgjLQCBqY/edit?usp=sharing)
 
