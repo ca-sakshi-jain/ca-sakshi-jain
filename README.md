@@ -2,7 +2,7 @@
 
 #### Chartered Accountant (CA) | Pursuing CPA | ACCA DipIFRS | FP&A Leader
 
-I am a finance professional with **6+ years of experience** in accounting, audit, and financial reporting. I am currently pivoting into **Financial Planning & Analysis (FP&A)** to leverage my technical foundation in driving business strategy and data-driven decision-making.
+I am a finance professional with **7+ years of experience** in accounting, audit, and financial reporting. I am currently pivoting into **Financial Planning & Analysis (FP&A)** to leverage my technical foundation in driving business strategy and data-driven decision-making.
 
 ### 🔭 I’m currently working on...
 
@@ -35,7 +35,7 @@ I am a finance professional with **6+ years of experience** in accounting, audit
 
 * **LinkedIn:** [CA Sakshi Jain](https://www.linkedin.com/in/ca-sakshi-jain1/)
 * **Email:** [casakshi25@gmail.com](mailto:casakshi25@gmail.com)
-* [📄 View My Professional Resume](https://docs.google.com/document/d/1H78Zm5BeEp2yLerY0pSvKsjGMD9fkpGKnKWgjLQCBqY/edit?usp=sharing)
+* **Email:** [View](https://docs.google.com/document/d/1H78Zm5BeEp2yLerY0pSvKsjGMD9fkpGKnKWgjLQCBqY/preview) or [Download](https://docs.google.com/document/d/1H78Zm5BeEp2yLerY0pSvKsjGMD9fkpGKnKWgjLQCBqY/export?format=pdf)
 
 ### ⚡ Fun fact:
 
